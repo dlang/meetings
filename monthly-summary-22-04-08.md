@@ -1,0 +1,1 @@
+The April 2022 monthly meeting was also a quarterly meeting. Please see [quarterly-monthly-summary-22-04-08.md](./quarterly-monthly-summary-22-04-08.md).
